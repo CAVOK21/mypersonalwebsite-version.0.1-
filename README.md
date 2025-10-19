@@ -1,2 +1,2 @@
-# mypersonalwebsite-version.0.1-
-My personak website LOL what you want?
+# version 0.1
+Lol, what the hell do you want to find on my personal website?
